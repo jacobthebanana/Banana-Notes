@@ -1,0 +1,1 @@
+/home/jacob/Documents/McGill/2019-2020/MATH/MATH-242/MATH-242-Notes.tex.md
