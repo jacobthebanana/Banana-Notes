@@ -1,3 +1,6 @@
+# Notes from 2019-10-28 "How to Get a Research Position" lecture by Student Research Initiative
+https://www.google.com/url?q=https://www.facebook.com/events/2575085649204501/&sa=D&usd=2&usg=AOvVaw3CdGeb3Uf5fgw1k1YG9tj5
+
 # The club
 SRI: Bridge the gap between students and professors. 
 https://www.facebook.com/StudentResearchInitiative/
